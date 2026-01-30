@@ -63,18 +63,6 @@
 
 <br/>  
 
-
-
-### </> What I do  
-<div align="center">
-<img src="https://i.ibb.co/TwGxQJ4/68747470733a2f2f6d656469612e67697068792e636f6d2f6d656469612f6639586748486e506e446a4f46316857706c2f67.gif" align="center" height="" width="" />
-</div>  
-  
-
-<br/>  
-
-  
-
 <br/>  
 
   
