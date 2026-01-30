@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://i.ibb.co/phwVJKW/Blue-Geometric-Technology-Linked-In-Banner-1.gif" align="center" style="width: 100%" />
+<img src="https://i.ibb.co.com/QjdgkQLb/Orange-Grainy-Gradient-Business-Job-Vacancy-Linked-In-Background-Photo-3.png" align="center" style="width: 100%" />
 </div>  
 
   
